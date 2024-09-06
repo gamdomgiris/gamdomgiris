@@ -1,3 +1,5 @@
+![photo](https://gamdomturk.com/wp-content/uploads/2024/08/guncel-giris-adresi.png)
+# - 👋 Güncel Giriş İçin Yukaridaki Resme Tıklayın
 # - 👋 Gamdom TR Giriş
 # - 👀 # Gamdom Güncel Giriş
 # - 🌱 # Gamdom Casino
